@@ -1,8 +1,8 @@
-- 👋 Hi, I’m DOA'A "@Gryffindor710"
-- 👀 I’m a Potterhead,Gryffindor
-- 🌱 I’m currently learning at the 10th grade
-- 💞️ I love Harry Potter more than anything else  
-- 📫 Viset my chaneels on telegtam : t.me/mygirlfriend7 & t.me/shutatnafsy
+- 👋 Hi, I’m DOA'A "@Gryffindor710" .
+- 👀 I’m a Potterhead,Gryffindor .
+- 🌱 I’m currently learning at the 10th grade .
+- 💞️ I love Harry Potter more than anything else .  
+- 📫 Viset my chaneels on telegtam : t.me/mygirlfriend7 & t.me/shutatnafsy .
 
 
 <!---
